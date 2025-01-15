@@ -10,6 +10,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on DevOps and Cloud projects
 - 🤔 I’m looking for help with anything relative the DevOps and Cloud jobs or skillset
 - 💬 Ask me about Tech, Cloud and DevOps
-- 📫 How to reach me: @kelechidikexx@gmail.com, X @kelechi_sh
+- 📫 How to reach me: @kelechidikexx@gmail.com, X https://x.com/Kelechi_sh
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am intentionally meticulous
+- ⚡ Fun fact: I am intentionally meticulous.
