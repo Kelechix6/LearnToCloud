@@ -12,4 +12,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about Tech, Cloud and DevOps
 - 📫 How to reach me: @kelechidikexx@gmail.com, X https://x.com/Kelechi_sh
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am intentionally meticulous
+- ⚡ Fun fact: I am intentionally meticulous.
